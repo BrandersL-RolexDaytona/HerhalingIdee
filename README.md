@@ -1,1 +1,1 @@
-haha neger
+landerjan is een kleine knuzzu
